@@ -2,5 +2,5 @@ Hi, I'm looking to work as a data analyst or an R Shiny developer. I have a weal
 
 Persistence makes the abstract intuitive.
 
-Okay, it's time for me to step away from my old pastime of armchair philosophy! If you would like to consider hiring me, contact me via gamal.gabr444@outlook.com or call me on 07482993818 .
+Okay, it's time for me to step away from my old pastime of armchair philosophy! If you would like to consider hiring me, please feel free to contact me via gamal.gabr444@outlook.com or call me on 07482993818 .
 
